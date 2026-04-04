@@ -37,7 +37,11 @@
 
 [Webster Hall 2006](https://youtu.be/AgA0VAN4ZJY) (Continuum Release Show) - New York City, NY
 
-[The Chapel 2006 (Incomplete Playlist)](https://youtube.com/playlist?list=PLi_P_LI694acWQlfpRTulf7f1of8O58WC) - San Francisco, CA?
+[The Chapel 2006 (Incomplete Playlist)](https://youtube.com/playlist?list=PLi_P_LI694acWQlfpRTulf7f1of8O58WC) - Melbourne, VIC, Australia
+
+[The Chapel 2006 (Full Vid)](https://youtu.be/TvZvXHkezSA?si=t7JvAjcRsEb8Oe9w) - Melbourne, VIC, Australia
+
+[Walmart Soundcheck 2007](https://youtu.be/Qei7vUFVi-8?si=85BoznzjcJfWjGcA) - 
 
 [Austin City Limits 2007](https://youtu.be/KC7BU7uod8o) - Austin, TX
 
